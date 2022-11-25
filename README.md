@@ -8,7 +8,7 @@ _**<h6 align="center">Baseado no artigo “Sony – Success Story” - https://w
 
  
 
-A cultura corporativa é um dos aspectos fundamentais da existência de uma empresa e influencia diretamente a sua atuação nos mercados aonde ela se insere, definindo também a reação destes mesmo mercados e cenários à ela. Estamos atualmente em um estágio de mundo em que a adaptação e agilidade de resposta devem ser prioridade nos projetos, garantindo a sobrevivência sustentável e escalável do negócio.  
+A cultura corporativa é um dos aspectos fundamentais da existência de uma empresa e influencia diretamente a sua atuação nos mercados aonde ela se insere, definindo também a reação destes mesmos mercados e cenários à ela. Estamos atualmente em um estágio de mundo em que a adaptação e agilidade de resposta devem ser prioridade nos projetos, garantindo a sobrevivência sustentável e escalável do negócio.  
 
 Num cenário onde a mudança baseada na fluidez da informação dá o tom da existência, a inadaptabilidade e a estagnação da cultura corporativa nas produções, processos e projetos, antes encaradas como solidez de identidade, hoje são colocadas a prova e tem se mostrado ineficientes diante da necessidade de crescimento exponencial de qualquer negócio. 
 
